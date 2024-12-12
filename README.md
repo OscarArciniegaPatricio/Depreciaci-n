@@ -1,1 +1,1 @@
-# Depreciaci-n
+# Depreciación
